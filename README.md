@@ -5,4 +5,4 @@ Today is the 8th of Maz 2021. I am sitting in the living room in Frankfurt/M Sac
 The time has come, the blockchain was the missing tech to make thsi possible. The idea is so simple that i believe in it. 
 Let's see how far we can bring this one. The basic concept i have since a long time, now the time is right to do it.
 
-If you have money or time or both and you like to engage,  please email me, Mathias at <a href="mailto:invest@etiamo.com">invest@etiamo.com</a>
+If you have money or time or both and you like to engage,  please email me, Mathias at <a href="mailto:invest@etiamo.com">invest@etiamo.com</a> ...
